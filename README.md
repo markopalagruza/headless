@@ -29,6 +29,3 @@ Its benefits are many, from a deep sense of peace and equanimity in the face of 
   - [Four Stages of Evolution](four-stages-of-evolution/)
   - [Final Word](final-word/)
 
-
-Cheers,
-Marko
