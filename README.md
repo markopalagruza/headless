@@ -19,7 +19,7 @@ Its benefits are many, from a deep sense of peace and equanimity in the face of 
 
 ## Table of Contents
   - [Welcome](welcome/)
-  - [Introduction](introduction/)
+  - [Introduction - Who are we really](introduction/)
   - [Pointing Experiment](pointing-experiment/)
   - [Mirror, Closed Eyes](mirror-closed-eyes/)
   - [Mind, Movement, Touch](mind-movement-touch/)
