@@ -12,7 +12,7 @@ There’s an ancient body of wisdom that suggests the person we usually think of
 
 This wisdom teaches that the purpose of life is awakening to this inner self. By looking steadily within at our divine nature, we claim our inheritance: eternal peace and unfading joy. By remaining open to this infinitely wise, loving, and creative source within us, we find ourselves blessed in countless ways.
 
-In this film, I’m not going to ask you to simply believe this ancient wisdom. Instead, I’m inviting you to carry out experiments to test it for yourself—to see if this claim about who we really are holds true.
+Here, I’m not going to ask you to simply believe this ancient wisdom. Instead, I’m inviting you to carry out experiments to test it for yourself—to see if this claim about who we really are holds true.
 
 Let me begin by rephrasing this spiritual claim about identity in modern physical terms. What we are at the center—at zero distance—is nothing like what we are from, say, four feet away, or from any distance. In fact, science supports this idea: what something is depends, in part, on the range of the observer.
 
