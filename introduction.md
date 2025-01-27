@@ -2,7 +2,9 @@
 
 ## This chapter introduces the concept of exploring one's true identity beyond the public self, blending ancient wisdom with modern scientific understanding. It invites viewers to conduct experiments to test the idea that our innermost nature is boundless and timeless.
 
-Hi, my name is Richard Lang. In this film, I’m inviting you to take a fresh look at yourself—a fresh look at your identity. But why should you do this?
+[Watch this on YT](https://youtu.be/oHcjkdo3cO8?si=2aRtiyim34sgCzoZ)
+
+Hi, my name is Richard Lang. I’m inviting you to take a fresh look at yourself—a fresh look at your identity. But why should you do this?
 
 Imagine if someone told you that you were, in fact, a king or queen, that you owned dozens of castles, yachts, and untold riches. Wouldn’t you want to see if it were true? And if it were true, wouldn’t you want to claim your inheritance?
 
@@ -29,3 +31,11 @@ As I look at my center now, I find no face or appearance. Instead, I see boundle
 So, let’s explore this amazing claim—about you, me, and everyone else. If it’s true, and if awareness of this inner reality becomes the norm in society, I believe all life on this planet will benefit.
 
 The first experiment I’m going to guide you through is called the Pointing Experiment.
+
+## Highlights
+- Our identity has layers, from visible human form to microscopic particles and beyond
+➡ We are part of an interconnected system, needing all layers to exist
+➡ At our center lies a boundless, aware space that contains the whole world
+
+## Reflection?
+- How might your perspective on life change if you truly saw yourself as boundless awareness?
