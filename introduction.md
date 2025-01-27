@@ -34,8 +34,8 @@ The first experiment I’m going to guide you through is called the Pointing Exp
 
 ## Highlights
 - Our identity has layers, from visible human form to microscopic particles and beyond
-➡ We are part of an interconnected system, needing all layers to exist
-➡ At our center lies a boundless, aware space that contains the whole world
+- We are part of an interconnected system, needing all layers to exist
+- At our center lies a boundless, aware space that contains the whole world
 
 ## Reflection?
 - How might your perspective on life change if you truly saw yourself as boundless awareness?
