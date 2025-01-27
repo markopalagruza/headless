@@ -18,7 +18,6 @@ Headless Way was named and structured by Douglas Harding (1909–2007). He gave 
 Its benefits are many, from a deep sense of peace and equanimity in the face of life's challenges to the joyful discovery of life as an unfolding adventure, moment by moment. Inspired by these gifts, I wanted to share it here on GitHub as an open-source library.
 
 ## Table of Contents
-  - [Welcome](welcome/)
   - [Introduction - Who are we really](introduction.md/)
   - [Pointing Experiment](pointing-experiment/)
   - [Mirror, Closed Eyes](mirror-closed-eyes/)
@@ -27,5 +26,4 @@ Its benefits are many, from a deep sense of peace and equanimity in the face of 
   - [Embracing The World](embracing-the-world/)
   - [Wealth, Time](wealth-time/)
   - [Four Stages of Evolution](four-stages-of-evolution/)
-  - [Final Word](final-word/)
 
