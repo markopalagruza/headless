@@ -1,5 +1,5 @@
 # headless
-Player One experience 
+## Player One experience 
 
 Headless Way is a fascinating and profound exploration into the nature of consciousness and self-awareness. At its core, the Headless Way is a method of self-inquiry that invites you to directly experience your true nature by recognizing the absence of your own head from your first-person perspective. It is not merely a philosophical concept, but an experiential journey.
 
