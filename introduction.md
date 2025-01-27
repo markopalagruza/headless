@@ -1,6 +1,6 @@
 # Who are we really
 
-## This chapter introduces the concept of exploring one's true identity beyond the public self, blending ancient wisdom with modern scientific understanding. It invites viewers to conduct experiments to test the idea that our innermost nature is boundless and timeless.
+## This chapter introduces the concept of exploring one's true identity beyond the public self, blending ancient wisdom with modern scientific understanding. It invites you to conduct experiments to test the idea that your innermost nature is boundless and timeless.
 
 [Watch this on YT](https://youtu.be/oHcjkdo3cO8?si=2aRtiyim34sgCzoZ)
 
