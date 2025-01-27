@@ -13,9 +13,11 @@ The Headless Way also emphasizes the interconnectedness of all beings, inviting 
 
 I encourage you to explore this concept further, perhaps by engaging in some of the headless experiments, and see what insights arise from your own experience. Remember, you are the sole authority on what it is like to be you. Embrace this journey with an open mind and heart.
 
-Headless Way was named and structured by Douglas Harding (1909–2007). He gave it to the world as a simple and open framework for experiencing life as a Subject. Think of it as stepping into the role of Player One, to borrow a bit of gaming lingo.
+Headless Way was named and structured by [Douglas Harding](https://en.wikipedia.org/wiki/Douglas_Harding) (1909–2007). He gave it to the world as a simple and open framework for experiencing life as a Subject. Think of it as stepping into the role of Player One, to borrow a bit of gaming lingo.
 
 Its benefits are many, from a deep sense of peace and equanimity in the face of life's challenges to the joyful discovery of life as an unfolding adventure, moment by moment. Inspired by these gifts, I wanted to share it here on GitHub as an open-source library.
+
+All the content presented here is based on the work of [Richard Lang](https://www.headless.org/contact/richard-lang.htm), a long-time student and close friend of Douglas Harding, as well as the [Headless Way online workshop](https://headless.glide.page/dl/ddecb1) structured by Gasper Sopi.
 
 ## Table of Contents
   - [Introduction - Who are we really](introduction.md/)
