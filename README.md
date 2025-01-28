@@ -17,7 +17,9 @@ Headless Way was named and structured by [Douglas Harding](https://en.wikipedia.
 
 Its benefits are many, from a deep sense of peace and equanimity in the face of life's challenges to the joyful discovery of life as an unfolding adventure, moment by moment. Inspired by these gifts, I wanted to share it here on GitHub as an open-source library.
 
-All the content presented here is based on the work of [Richard Lang](https://www.headless.org/contact/richard-lang.htm), a long-time student and close friend of Douglas Harding, as well as the [Headless Way online workshop](https://headless.glide.page/dl/ddecb1) structured by Gasper Sopi.
+The content presented here is based on the videos by [Richard Lang](https://www.headless.org/contact/richard-lang.htm), a long-time student and close friend of Douglas Harding, as well as the [Headless Way online workshop](https://headless.glide.page/dl/ddecb1) structured by Gasper Sopi.
+
+[Youniverse](img/youniverse.jpg "Douglas Harding’s original 'Youniverse' model")
 
 ## Table of Contents
   - [Introduction - Who are we really](introduction.md/)
