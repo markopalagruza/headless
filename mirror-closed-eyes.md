@@ -1,6 +1,8 @@
 # Mirror, Closed Eyes
 ## In this chapter we explore the difference between public and private identity through experiments, including looking in a mirror and closing one's eyes. It challenges viewers to directly experience their innermost nature as boundless awareness.
 
+[Watch this on YT](https://youtu.be/zQLuV7YQBsE?si=91--BBKVsyUpEzC-) (6:38)
+
 In part 1, we began exploring the difference between our public and private identity through the pointing experiment. We directed our attention outward at things, then inward at ourselves, to see whether we are things at our center or "no-thing," capacity for the world.  
 
 In part 2, we’ll continue this exploration, starting with an experiment involving a mirror. We’ll then proceed with other experiments, examining who we truly are from different perspectives. These experiments invite us to take a fresh look at ourselves and awaken to the blessed condition of our innermost self.  
