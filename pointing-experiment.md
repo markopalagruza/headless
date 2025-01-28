@@ -3,7 +3,8 @@
 
 In the pointing experiment, we begin by directing our attention outward, observing that everything we see has shape and color—everything is a thing. Gradually, we direct our attention closer to ourselves until, finally, we are looking in at the place we are looking out of, to see if we also have shape and color—to see whether there is "something" at the center or "no-thing."
 
-** Capacity for the World **
+**Capacity for the World**
+
 Point at something in front of you and notice its color and shape. It’s a thing. Bring your finger down a little, point at something else, and notice its color and shape—it’s a thing as well. Now point down at the floor. You might see shades and patterns in the carpet.
 
 Next, point at your foot and notice its color and shape—it’s a thing too. Move your finger up your body and point at your knee. Observe the color and shape of your knee—another thing. Bring your finger further up and point at your torso. Notice the colors and shapes there—it’s a thing as well.
