@@ -2,7 +2,7 @@
 
 ## This chapter introduces the concept of exploring one's true identity beyond the public self, blending ancient wisdom with modern scientific understanding. It invites you to conduct experiments to test the idea that your innermost nature is boundless and timeless.
 
-[Watch this on YT](https://youtu.be/oHcjkdo3cO8?si=2aRtiyim34sgCzoZ)
+[Watch this on YT](https://youtu.be/oHcjkdo3cO8?si=2aRtiyim34sgCzoZ) (6:33)
 
 Hi, my name is Richard Lang. I’m inviting you to take a fresh look at yourself—a fresh look at your identity. But why should you do this?
 
@@ -19,6 +19,8 @@ Let me begin by rephrasing this spiritual claim about identity in modern physica
 For example, you’re looking at me from a few feet away, and from that range, I’m human—I’m Richard. But if you were to examine me with a microscope, you’d leave “Richard” behind and see a layer of cells. Zooming closer, you’d find molecules, then atoms, particles, and eventually, nearly nothing at all. In other words, we’re made up of layers, like an onion.
 
 Now, instead of zooming in on me, imagine zooming out. Moving away, “Richard” would be replaced by London, then England, then the planet, the star system, the galaxy, and so on. Here’s a diagram of these outer layers:
+
+![Layers](https://github.com/markopalagruza/headless/img/layers.png)
 
 We need all of these layers to exist. To breathe, we need not only our lungs, cells, and molecules but also the atmosphere, the Sun, and the rest of life. Although we primarily identify with the human layer—the one visible from a few feet away—we rely on every layer. It’s one undivided system.
 
