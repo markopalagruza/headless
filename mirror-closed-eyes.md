@@ -1,5 +1,5 @@
 # Mirror, Closed Eyes
-## In this chapter we explore the difference between public and private identity through experiments, including looking in a mirror and closing one's eyes. It challenges viewers to directly experience their innermost nature as boundless awareness.
+## In this chapter we explore the difference between public and private identity through experiments, including looking in a mirror and closing one's eyes. It challenges you to directly experience your innermost nature as boundless awareness.
 
 [Watch this on YT](https://youtu.be/zQLuV7YQBsE?si=91--BBKVsyUpEzC-) (6:38)
 
