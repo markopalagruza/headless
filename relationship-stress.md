@@ -1,6 +1,8 @@
 # Relationship, Stress
 ## This chapter explores how being aware of our faceless nature benefits our relationships and helps us cope better with stress and pain.
 
+https://youtu.be/fp8CXjShggk?si=Jj7W8rriliAvj681
+
 In this chapter we’ll explore how conscious facelessness reveals a radically new perspective on relationships. Then, we’ll look at how being aware of this awake capacity at our center might help us cope better with stress and pain. We’ll also see that our consciousness includes everyone and everything, that we’re distant from nothing, and that we’re looking out of a boundless single eye.  
 
 One area where it truly makes a difference to be aware of our private identity is in relationships. I am aware that publicly I am face-to-face with others. For you now, I am face-to-face with Muka. However, this is just the external view of our relationship. Privately, it is different. Privately, we are face-to-no-face with each other. I have Muka’s face, and she has mine. Let me show you what I mean with the help of a camera.  
