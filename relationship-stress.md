@@ -1,7 +1,7 @@
 # Relationship, Stress
 ## This chapter explores how being aware of our faceless nature benefits our relationships and helps us cope better with stress and pain.
 
-https://youtu.be/fp8CXjShggk?si=Jj7W8rriliAvj681
+[Watch this on YT](https://youtu.be/fp8CXjShggk?si=Jj7W8rriliAvj681) (7:33)
 
 In this chapter we’ll explore how conscious facelessness reveals a radically new perspective on relationships. Then, we’ll look at how being aware of this awake capacity at our center might help us cope better with stress and pain. We’ll also see that our consciousness includes everyone and everything, that we’re distant from nothing, and that we’re looking out of a boundless single eye.  
 
