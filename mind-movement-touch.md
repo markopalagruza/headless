@@ -1,6 +1,8 @@
 # Mind, Movement, Touch
 ## This chapter examines the location of our minds from both the public and the private perspectives, suggesting that our thoughts and feelings are not confined to our heads but are experienced as part of the world around us. Richard also guides you through an experiment pointing to the stillness at our center, and an experiment that explores whether touch puts our heads back on our bodies.
 
+[Watch this on YT](https://youtu.be/9G4Rk-S6188?si=cmRKvIbc_2HCHvYr) (8:16)
+
 In the closed-eye experiment, we briefly paid attention to the location of our minds. Let’s explore this further, now with our eyes open. Where are our minds? Are they central, in our heads, separate from the rest of the world? Or are they at large, undivided from the world?  
 
 Others tell me that my thoughts are in my head. I accept this way of thinking about my mind—the public view of me. My mind is here, yours is there. But my private experience is different. My thoughts are not in my head because I don’t find my head here. Instead, I find boundless awareness. This awareness contains both my thoughts and feelings and the world. My mind is undivided from the world.  
@@ -41,5 +43,5 @@ These sensations don’t solidify me into a thing. They don’t limit me. Even w
 - Recognizing this perspective can lead to greater creativity and emotional openness
 
 ## Reflection
-- How might your relationship with your thoughts change if you viewed them as part of the world rather than confined to your head?
+How might your relationship with your thoughts change if you viewed them as part of the world rather than confined to your head?
 
