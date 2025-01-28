@@ -45,7 +45,7 @@ Seeing privately that you are space for the world offers a different view of you
 
 If you haven’t been aware of it and then you encounter it, it’s natural to question whether this view is valid and true. For example, I can’t see my face here, but I can see it in the mirror. Doesn’t that prove I have a face? That I am not capacity at my center, but rather a person?
 
-Other questions arise too. Alongside questions of validity and truth, we ask about usefulness. If I remain aware of my private identity, what difference will it make in my life and in society? We will begin exploring these questions in part two.
+Other questions arise too. Alongside questions of validity and truth, we ask about usefulness. If I remain aware of my private identity, what difference will it make in my life and in society? We will begin exploring these questions in the [next chapter](mirror-closed-eyes.md).
 
 ## Highlights
 - Our private identity is described as a faceless, boundless capacity
