@@ -3,9 +3,9 @@
 
 [Watch this on YT](https://youtu.be/zQLuV7YQBsE?si=91--BBKVsyUpEzC-) (6:38)
 
-In part 1, we began exploring the difference between our public and private identity through the pointing experiment. We directed our attention outward at things, then inward at ourselves, to see whether we are things at our center or "no-thing," capacity for the world.  
+In the previous chapter, we began exploring the difference between our public and private identity through the pointing experiment. We directed our attention outward at things, then inward at ourselves, to see whether we are things at our center or "no-thing," capacity for the world.  
 
-In part 2, we’ll continue this exploration, starting with an experiment involving a mirror. We’ll then proceed with other experiments, examining who we truly are from different perspectives. These experiments invite us to take a fresh look at ourselves and awaken to the blessed condition of our innermost self.  
+In this chapter, we’ll continue this exploration, starting with an experiment involving a mirror. We’ll then proceed with other experiments, examining who we truly are from different perspectives. These experiments invite us to take a fresh look at ourselves and awaken to the blessed condition of our innermost self.  
 
 You might say, "I can’t see my face here, but I can see it in the mirror. Doesn’t the mirror show me who I am? Doesn’t it prove that I’m not space at my center, but a thing—a person?" Let’s look in the mirror and see what we find.  
 
