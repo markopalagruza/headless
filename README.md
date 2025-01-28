@@ -23,11 +23,11 @@ The content presented here is based on the videos by [Richard Lang](https://www.
 
 ## Table of Contents
   - [Introduction - Who are we really](introduction.md/)
-  - [Pointing Experiment](pointing-experiment/)
-  - [Mirror, Closed Eyes](mirror-closed-eyes/)
-  - [Mind, Movement, Touch](mind-movement-touch/)
-  - [Relationship, Stress](relationship-stress/)
-  - [Embracing The World](embracing-the-world/)
-  - [Wealth, Time](wealth-time/)
-  - [Four Stages of Evolution](four-stages-of-evolution/)
+  - [Pointing Experiment](pointing-experiment.md/)
+  - [Mirror, Closed Eyes](mirror-closed-eyes.md/)
+  - [Mind, Movement, Touch](mind-movement-touch.md/)
+  - [Relationship, Stress](relationship-stress.md/)
+  - [Embracing The World](embracing-the-world.md/)
+  - [Wealth, Time](wealth-time.md/)
+  - [Four Stages of Evolution](four-stages-of-evolution.md/)
 
