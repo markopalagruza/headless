@@ -20,7 +20,7 @@ For example, you’re looking at me from a few feet away, and from that range, I
 
 Now, instead of zooming in on me, imagine zooming out. Moving away, “Richard” would be replaced by London, then England, then the planet, the star system, the galaxy, and so on. Here’s a diagram of these outer layers:
 
-![Layers](https://github.com/markopalagruza/headless/img/layers.png)
+![Layers](img/layers.png)
 
 We need all of these layers to exist. To breathe, we need not only our lungs, cells, and molecules but also the atmosphere, the Sun, and the rest of life. Although we primarily identify with the human layer—the one visible from a few feet away—we rely on every layer. It’s one undivided system.
 
