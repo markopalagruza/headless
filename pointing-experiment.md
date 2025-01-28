@@ -9,9 +9,23 @@ In the pointing experiment, we begin by directing our attention outward, observi
 
 Point at something in front of you and notice its color and shape. It’s a thing. Bring your finger down a little, point at something else, and notice its color and shape—it’s a thing as well. Now point down at the floor. You might see shades and patterns in the carpet.
 
-Next, point at your foot and notice its color and shape—it’s a thing too. Move your finger up your body and point at your knee. Observe the color and shape of your knee—another thing. Bring your finger further up and point at your torso. Notice the colors and shapes there—it’s a thing as well.
+![Pointing](img/pointing1.jpg)
+
+Next, point at your foot and notice its color and shape—it’s a thing too. 
+
+![Pointing](img/pointing2.jpg)
+
+Move your finger up your body and point at your knee. Observe the color and shape of your knee—another thing. 
+
+![Pointing](img/pointing3.jpg)
+
+Bring your finger further up and point at your torso. Notice the colors and shapes there—it’s a thing as well.
+
+![Pointing](img/pointing4.jpg)
 
 Now bring your finger out in front of you and point back at the place where others see your face—the place you are looking out of. What do you see here? Do you see your face? Do you see your eyes, cheeks, or mouth? Do you see any colors or shapes here? Do you see anything here at all?
+
+![Pointing](img/pointing5.jpg)
 
 I’m not asking what you *believe* is here. Put aside belief and take a fresh look. Rather than what you think is here, ask yourself: what do you see here—or not see?
 
