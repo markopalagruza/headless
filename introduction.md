@@ -32,7 +32,7 @@ As I look at my center now, I find no face or appearance. Instead, I see boundle
 
 So, let’s explore this amazing claim—about you, me, and everyone else. If it’s true, and if awareness of this inner reality becomes the norm in society, I believe all life on this planet will benefit.
 
-The first experiment I’m going to guide you through is called the Pointing Experiment.
+The first experiment I’m going to guide you through is called the [Pointing Experiment](pointing-experiment.md).
 
 ## Highlights
 - Our identity has layers, from visible human form to microscopic particles and beyond
