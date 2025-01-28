@@ -1,6 +1,8 @@
 # Pointing Experiment
 ## In this chapter we dive straight into the discovery of our "faceless capacity" which lies at the center of our being, contrasting it with the usual view of ourselves as a separate person. 
 
+[Watch this on YT](https://youtu.be/gHfD8ozxXhA?si=MwsT06vrb3CmqoYY) (6:26)
+
 In the pointing experiment, we begin by directing our attention outward, observing that everything we see has shape and color—everything is a thing. Gradually, we direct our attention closer to ourselves until, finally, we are looking in at the place we are looking out of, to see if we also have shape and color—to see whether there is "something" at the center or "no-thing."
 
 **Capacity for the World**
