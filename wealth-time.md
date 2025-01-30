@@ -13,7 +13,7 @@ But what good is this wealth if it’s private, not public? I can’t do anythin
 
 Our innermost being is truly extraordinary. When we say yes to this miracle—to this infinitely creative, rich, powerful, and loving being within us—its creativity, wealth, power, and love flow into and bless our lives. Keep the door open to this beautiful mystery within you, and you will be guided and helped in countless ways. Can I prove this is true? No, but it is my experience and the experience of many others who have said yes to what we are from our own point of view. If you are willing to look at what you are and say yes to what you find, I am sure you won’t regret it.  
 
-In the remaining part of this film, we will do one more experiment related to time. Then we will explore how consciousness of our private self is a normal stage of human development.  
+In the remaining part of this chapter, we will do one more experiment related to time. Then we will explore how consciousness of our private self is a normal stage of human development.  
 
 If we want to know what time it is, we might look at our watches. I see that it is now four o’clock. My watch tells me the time there, at that distance from me, on my wrist. But what time is it at zero distance—here at my center, and there at your center? Let’s have a look.  
 
