@@ -21,7 +21,7 @@ These stages serve as a map not only for our individual lives but for humanity a
 
 If you are aware now of being capacity for the world, then you are living proof of this shift. Hopefully, enough of us will awaken quickly enough to influence the general consciousness of humanity. The survival of civilization and life as we know it may depend on this shift—on humanity recognizing that, in reality, it is capacity for other species and for the environment.  
 
-In this film, we have presented a traditional spiritual message in modern terms. This message has been expressed in different ways throughout history, depending on time and culture. One way of putting it is that we are not simply human; we are also divine. If we look steadily within at our divine nature, our lives will be blessed.  
+Here, we have presented a traditional spiritual message in modern terms. This message has been expressed in different ways throughout history, depending on time and culture. One way of putting it is that we are not simply human; we are also divine. If we look steadily within at our divine nature, our lives will be blessed.  
 
 Here, we have described this spiritual message in physical terms: we are not, at our center, what we appear to be from a distance. Rather than asking you to believe this, we have carried out experiments to test it and explored some of the implications of living consciously from our center. This modern approach to testing an ancient truth was developed by the philosopher Douglas Harding.  
 
