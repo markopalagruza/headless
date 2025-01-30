@@ -1,6 +1,8 @@
 # Embracing The World
 ## This chapter explores how we are capacity for our own body and the bodies of other people, the rest of life, the planet. Then Richard guides us through an experiment exploring distance, and then the Single Eye experiment.
 
+[Watch this on YT](https://youtu.be/llWCHO2ivUg?si=e0Un37AkXBbRD32K) (6:31)
+
 Looking in at my center, at the place I’m looking out from, I find capacity—clear, boundless awareness. Looking out, I find the world. The nearest thing I see is my own headless body. You, of course, see your body emerging from the emptiness at your center. Each of us is capacity for our own body. Looking beyond, we find other people.  
 
 Being capacity at center, our consciousness now includes others. There’s a dividing line between our bodies, but no dividing line at center. Looking out, we find many. Looking in, we find one. Reaching out and stroking my friend’s dog, I’m capacity for her dog—face there to no face here. Each of us is capacity, not only for other people but for animals as well.  
