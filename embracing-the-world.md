@@ -1,5 +1,5 @@
 # Embracing The World
-## This chapter explores how we are capacity for our own body and the bodies of other people, the rest of life, the planet. Then Richard guides us through an experiment exploring distance, and then the Single Eye experiment.
+## This chapter explores how we are capacity for our own body and the bodies of other people, the rest of life, the planet. Then we are guided through an experiment exploring distance, and then through the Single Eye experiment.
 
 [Watch this on YT](https://youtu.be/llWCHO2ivUg?si=e0Un37AkXBbRD32K) (6:31)
 
