@@ -32,4 +32,5 @@ The content presented here is based on the videos by [Richard Lang](https://www.
   - [Embracing The World](embracing-the-world.md/)
   - [Wealth, Time](wealth-time.md/)
   - [Four Stages of Evolution](four-stages-of-evolution.md/)
+  - [Appendix: Scientific Perspective](science.md/)
 
