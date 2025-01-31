@@ -3,7 +3,7 @@
 
 Headless Way is a fascinating and profound exploration into the nature of consciousness and self-awareness. At its core, the Headless Way is a method of self-inquiry that invites you to directly experience your true nature by recognizing the absence of your own head from your first-person perspective. It is not merely a philosophical concept, but an experiential journey.
 
-Imagine this: as you look out into the world, you see everything around you — your hands, your surroundings — but you cannot see your own head. This simple observation leads to the realization that, from your own perspective, you are headless. This is not to say that you physically lack a head, but rather that your direct experience of yourself is one of openness, spaciousness, and absence of a fixed identity.
+Observe this: as you look out into the world, you see everything around you — your hands, your surroundings — but you cannot see your own head. This simple observation leads to the realization that, from your own perspective, you are headless. This is not to say that you physically lack a head, but rather that your direct experience of yourself is one of openness, spaciousness, and absence of a fixed identity.
 
 The Headless Way encourages you to look for yourself, to test this experience in your own life. It is a non-verbal, immediate recognition of your true nature as the space in which the world appears. This space is not separate from what you observe; rather, it is the capacity for everything you perceive.
 
