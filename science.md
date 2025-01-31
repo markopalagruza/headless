@@ -1,4 +1,4 @@
-# Scientific perspective
+# Scientific Perspective
 
 Even though I don’t think scientific validation is necessary for the Headless Way to benefit someone, I’m always thrilled when I see scientific thinking pointing in the same direction. Here are a few perspectives, starting with a quote from Erwin Schrödinger:
 
